@@ -10,7 +10,9 @@ B20AI059 - Suyog Gupta
 
 
 
+Report: https://drive.google.com/file/d/1M-KMmZHC9BuZEHr06kDNLrho64mCDY8-/view?usp=sharing
 
 Video 1: https://drive.google.com/file/d/13Vhb_9GRyQlzQ2cm7XDXdUSRzUpewm5j/view?usp=sharing
 
 Video 2: https://drive.google.com/file/d/1SVrOXt1zBYL2uIE2-1GH9Jm_r8ZjK2Rn/view?usp=sharing
+
